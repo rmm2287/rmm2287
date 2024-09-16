@@ -5,4 +5,4 @@
 - 👯 I’m looking to collaborate on projects investigating social services and urban challenges
 - 😄 Pronouns: she, her, her
 - 🍪 Fun fact: I love to bake, espeically cookies
-
+- 🍁 Favorite season: Fall! But a close second is spring 🌹
